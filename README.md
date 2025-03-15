@@ -1,4 +1,3 @@
-# Muhammed Farhan 
 
 ## Hi 👋, I'm Muhammed Farhan
 
